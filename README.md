@@ -1,0 +1,1 @@
+# hajami0802.github.io
